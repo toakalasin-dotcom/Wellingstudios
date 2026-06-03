@@ -1,2 +1,2 @@
 # Wellingstudios
-Is a learn more and follow a addon!
+welcome to welling studios a website is a learn more and download follow a addon!
